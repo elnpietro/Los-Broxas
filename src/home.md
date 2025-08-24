@@ -1,3 +1,3 @@
 # Home
 
-![mariaedu...](https://www.thegamesmachine.it/wp-content/uploads/2025/03/copertina_ground_zeroes.jpg)
+![mariaedu...](https://i.pinimg.com/originals/a5/d3/d5/a5d3d5d0359f95eac4ece14989ae289f.gif)
